@@ -1,0 +1,91 @@
+---
+description: "Recipe of Homemade Proper Malted Milk Biscuits"
+title: "Recipe of Homemade Proper Malted Milk Biscuits"
+slug: 639-recipe-of-homemade-proper-malted-milk-biscuits
+date: 2020-11-07T11:13:06.046Z
+image: https://img-global.cpcdn.com/recipes/6369878069477376/751x532cq70/proper-malted-milk-biscuits-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6369878069477376/751x532cq70/proper-malted-milk-biscuits-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6369878069477376/751x532cq70/proper-malted-milk-biscuits-recipe-main-photo.jpg
+author: Abbie Underwood
+ratingvalue: 4.4
+reviewcount: 34233
+recipeingredient:
+- " butter"
+- " caster sugar"
+- " egg"
+- " malt extract"
+- " self raising flour"
+- " salt I forgot but came out great"
+recipeinstructions:
+- "Cream the butter and sugar"
+- "Beat in the egg"
+- "Add malt and beat together"
+- "Add the flour &amp; salt if using and mix into a ball I changed to a spoon half way as mixture was going every where lol."
+- "Put dough in  the fridge for 30-60 minutes. I left mine for 60. This makes the dough easier to roll out."
+- "10 minutes before you roll out the dough Pre heat oven to 150° &amp; line a baking tray with greaseproof paper"
+- "Roll out the dough to the thickness of a £1 coin and cut out in rectangular shapes or squares,"
+- "Place on the tray and bake for 15-20 minutes until edges go lightly brown. Mine took 18 minutes"
+- "Leave to cool a while on the tray before transferring to a cooling rack"
+- "Enjoy with a glass of milk or favourite  brew."
+categories:
+- Recipe
+tags:
+- proper
+- malted
+- milk
+
+katakunci: proper malted milk 
+nutrition: 169 calories
+recipecuisine: American
+preptime: "PT23M"
+cooktime: "PT54M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Proper Malted Milk Biscuits](https://img-global.cpcdn.com/recipes/6369878069477376/751x532cq70/proper-malted-milk-biscuits-recipe-main-photo.jpg)
+
+Hey everyone, I hope you are having an incredible day today. Today, I will show you a way to make a special dish, proper malted milk biscuits. One of my favorites food recipes. This time, I am going to make it a bit unique. This is gonna smell and look delicious.
+
+
+
+Proper Malted Milk Biscuits is one of the most well liked of recent trending meals on earth. It is easy, it is quick, it tastes delicious. It's appreciated by millions every day. Proper Malted Milk Biscuits is something which I've loved my entire life. They're fine and they look fantastic.
+
+
+To begin with this recipe, we have to prepare a few ingredients. You can have proper malted milk biscuits using 6 ingredients and 10 steps. Here is how you can achieve that.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Proper Malted Milk Biscuits:
+
+1. Make ready  butter
+1. Prepare  caster sugar
+1. Get  egg
+1. Get  malt extract
+1. Get  self raising flour
+1. Get  salt (I forgot but came out great)
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Proper Malted Milk Biscuits:
+
+1. Cream the butter and sugar
+1. Beat in the egg
+1. Add malt and beat together
+1. Add the flour &amp; salt if using and mix into a ball I changed to a spoon half way as mixture was going every where lol.
+1. Put dough in  the fridge for 30-60 minutes. I left mine for 60. This makes the dough easier to roll out.
+1. 10 minutes before you roll out the dough Pre heat oven to 150° &amp; line a baking tray with greaseproof paper
+1. Roll out the dough to the thickness of a £1 coin and cut out in rectangular shapes or squares,
+1. Place on the tray and bake for 15-20 minutes until edges go lightly brown. Mine took 18 minutes
+1. Leave to cool a while on the tray before transferring to a cooling rack
+1. Enjoy with a glass of milk or favourite  brew.
+
+
+
+
+So that's going to wrap it up with this special food proper malted milk biscuits recipe. Thanks so much for your time. I am sure you can make this at home. There's gonna be interesting food at home recipes coming up. Don't forget to save this page in your browser, and share it to your loved ones, friends and colleague. Thank you for reading. Go on get cooking!
